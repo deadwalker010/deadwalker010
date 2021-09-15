@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @deadwalker010
+- 👀 I’m interested in ... money
+- 🌱 I’m currently learning ... money
+- 💞️ I’m looking to collaborate on ... money
+- 📫 How to reach me ... money
